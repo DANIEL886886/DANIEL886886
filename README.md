@@ -6,8 +6,6 @@
 - 😄 Pronouns: Bro
 - ⚡ Fun fact: i will add in the future
 
-![code-bug](https://github.com/DANIEL886886/DANIEL886886/assets/135163528/384e65ff-2890-4a99-80bd-13cf6147de2f)
-
 ![gk4cplcv63v61](https://github.com/DANIEL886886/DANIEL886886/assets/135163528/2652ca81-9ac6-4cd4-8db5-9f8d3c4aadff)
 
 
