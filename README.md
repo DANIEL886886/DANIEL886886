@@ -5,6 +5,10 @@
 - 📫 How to reach me : danielparaschiv886@gmail.com
 - 😄 Pronouns: Bro
 - ⚡ Fun fact: i will add in the future
+
+![gk4cplcv63v61](https://github.com/DANIEL886886/DANIEL886886/assets/135163528/2652ca81-9ac6-4cd4-8db5-9f8d3c4aadff)
+
+
 <!---
      .edee...      .....       .eeec.   ..eee..
    .d*"  """"*e..d*"""""**e..e*""  "*c.d""  ""*e.
