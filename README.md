@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DANIEL886886
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning HTML, CSS, GIT, GITHUB, JAVA SCRIPT, REACT
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on anything to make a start in this industry
 - 📫 How to reach me : danielparaschiv886@gmail.com
 - 😄 Pronouns: Bro
 - ⚡ Fun fact: i will add in the future
